@@ -1,8 +1,16 @@
 # Ativador-Windows-10
 
-Programa Ativador do Windows 10. 
-Esse é mais um lançamento em nossos softwares.
-Com esse programa você poderá ativar seu computador de forma rápida e fácil.
+```
+- Programa Ativador do Windows 10. 
+- Esse é mais um lançamento em nossos softwares.
+- Com esse programa você poderá ativar seu computador de forma rápida e fácil.
+```
+
+```
+- Deseja adquirir esse programa conosco: [💬 Chat - Eletro Tech Shop](https://www.instagram.com/direct/t/17850131975643364/)
+- OU
+- [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop) 
+```
 
 Nos siga em nosso Instagram! 
 
@@ -16,4 +24,8 @@ Nos siga em nosso Instagram!
 
 ![Imagem Ativador3.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668351106457610/Ativador_Windows_10_.png?ex=65eb65c4&is=65d8f0c4&hm=543aeb4c88209fceec775a5a30bc27f2c5133b35016221e3e3737b0b5ea85da2&)
 
+```
+- Deseja entrar em contato comigo, me chame em meu Instagram: [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
+- [Meu Perfil no GitHub](https://github.com/GittServer/Gitt_Server#readme) 
+```
 
