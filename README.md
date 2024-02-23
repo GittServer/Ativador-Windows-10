@@ -6,7 +6,7 @@
 - Com esse programa você poderá ativar seu computador de forma rápida e fácil.
 ```
 
-- Deseja adquirir esse programa conosco: [💬 Chat - Eletro Tech Shop](https://www.instagram.com/direct/t/17850131975643364/)
+- Deseja tirar dúvidas sobre o programa: [💬 Chat - Eletro Tech Shop](https://www.instagram.com/direct/t/17850131975643364/)
 - OU
 - [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
 
