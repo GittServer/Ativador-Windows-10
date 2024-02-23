@@ -11,7 +11,7 @@
 - [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
 
 ## COMPRE AQUI!
-- [Compre aqui o Ativador](https://mpago.la/2YR8mzX)
+- [Compre aqui o Ativador](https://mpago.la/2YR8mzX) por 15,00 R$
 - OBS: Após fazer o pagamento você será enviado para um [💬 Chat](https://www.instagram.com/direct/t/17850131975643364/), lá nele peça o link para baixar o Ativador.
 
 ## Nos siga em nosso Instagram! 
