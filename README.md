@@ -1,4 +1,4 @@
-# Ativador-Windows-10
+# Ativador-Windows-10 V2.0 🆕
 
 ```
 - Programa Ativador do Windows 10. 
@@ -10,7 +10,7 @@
 - OU
 - [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
 
-## COMPRE AQUI!
+## COMPRE AQUI! 💲💲
 - [Compre aqui o Ativador](https://mpago.la/2YR8mzX) por 15,00 R$
 - OBS: Após fazer o pagamento você será enviado para um [💬 Chat](https://www.instagram.com/direct/t/17850131975643364/), lá nele peça o link para baixar o Ativador.
 
@@ -28,5 +28,5 @@
 ![Imagem Ativador3.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668351106457610/Ativador_Windows_10_.png?ex=65eb65c4&is=65d8f0c4&hm=543aeb4c88209fceec775a5a30bc27f2c5133b35016221e3e3737b0b5ea85da2&)
 
 - Deseja entrar em contato comigo, me chame em meu Instagram: [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
-- [Meu Perfil no GitHub](https://github.com/GittServer/Gitt_Server#readme) 
+- [✅ Meu Perfil no GitHub](https://github.com/GittServer/Gitt_Server#readme) 
 
