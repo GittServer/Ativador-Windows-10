@@ -10,6 +10,10 @@ Nos siga em nosso Instagram!
 
 - [Veja mais informações do produto](https://www.instagram.com/p/C3sy6CKRXxK/?img_index=1)
 
-![Imagem Ativador.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350573641758/Img_Ativador.jpg?ex=65eb65c3&is=65d8f0c3&hm=cd4eb5b6938f1f95083b1a4af201010ab752b344973583a0113d813913930e8e&)
+![Imagem Ativador1.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350573641758/Img_Ativador.jpg?ex=65eb65c3&is=65d8f0c3&hm=cd4eb5b6938f1f95083b1a4af201010ab752b344973583a0113d813913930e8e&)
+
+![Imagem Ativador2.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350850474114/Versao_2.0_-_Copia.jpg?ex=65eb65c3&is=65d8f0c3&hm=5a8f99b56f216736a46fa2c3d843ee1e07c1bcf8e1cba5e7e0f74cf6a215d2e6&)
+
+![Imagem Ativador3.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668351106457610/Ativador_Windows_10_.png?ex=65eb65c4&is=65d8f0c4&hm=543aeb4c88209fceec775a5a30bc27f2c5133b35016221e3e3737b0b5ea85da2&)
 
 
