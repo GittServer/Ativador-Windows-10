@@ -23,9 +23,9 @@
 
 ![image](https://github.com/GittServer/Ativador-Windows-10/assets/104231713/b9d5a1ea-f012-4a93-aa47-fd9b0857e34c)
 
-![Imagem Ativador2.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350850474114/Versao_2.0_-_Copia.jpg?ex=65eb65c3&is=65d8f0c3&hm=5a8f99b56f216736a46fa2c3d843ee1e07c1bcf8e1cba5e7e0f74cf6a215d2e6&)
+![image](https://github.com/GittServer/Ativador-Windows-10/assets/104231713/9e5972e8-8571-4289-b430-bd747460d461)
 
-![Imagem Ativador3.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668351106457610/Ativador_Windows_10_.png?ex=65eb65c4&is=65d8f0c4&hm=543aeb4c88209fceec775a5a30bc27f2c5133b35016221e3e3737b0b5ea85da2&)
+![image](https://github.com/GittServer/Ativador-Windows-10/assets/104231713/cc1036d3-06b3-45ec-9173-2a27126b52d2)
 
 - Deseja entrar em contato comigo, me chame em meu Instagram: [💬 Instagram - Eletro Tech Shop](https://instagram.com/eletro.tech.shop)
 - [✅ Meu Perfil no GitHub](https://github.com/GittServer/Gitt_Server#readme) 
