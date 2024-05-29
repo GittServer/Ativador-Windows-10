@@ -21,7 +21,7 @@
 ## 
 - [Veja mais informações do produto](https://www.instagram.com/p/C3sy6CKRXxK/?img_index=1)
 
-![Imagem Ativador1.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350573641758/Img_Ativador.jpg?ex=65eb65c3&is=65d8f0c3&hm=cd4eb5b6938f1f95083b1a4af201010ab752b344973583a0113d813913930e8e&)
+![image](https://github.com/GittServer/Ativador-Windows-10/assets/104231713/b9d5a1ea-f012-4a93-aa47-fd9b0857e34c)
 
 ![Imagem Ativador2.png](https://cdn.discordapp.com/attachments/1058257537377517608/1210668350850474114/Versao_2.0_-_Copia.jpg?ex=65eb65c3&is=65d8f0c3&hm=5a8f99b56f216736a46fa2c3d843ee1e07c1bcf8e1cba5e7e0f74cf6a215d2e6&)
 
